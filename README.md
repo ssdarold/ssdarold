@@ -25,4 +25,4 @@ My passion for coding, coupled with my extensive experience, drives me to create
 
 If you're looking for a dedicated and skilled software engineer to bring your ideas to life, I would be thrilled to collaborate with you. Let's connect and discuss how we can work together to create remarkable digital experiences!
 
-You can find me on [Vk](https://vk.com/yourprofile) and [Telegram](https://t.me/yourprofile).
+You can find me on [Vk](https://vk.com/ssdarold) and [Telegram]([[https://t.me/yourprofile](https://t.me/seodarold)](https://t.me/seodarold)).
